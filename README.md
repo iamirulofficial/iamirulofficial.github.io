@@ -1,5 +1,5 @@
 # iamirulofficial.github.io
-Its Under Development Launching Soon...
-Restricted
+Its Under Dnevelopment Launching Soon...
+Restricted New Date Released
 
 [Site](https://iamirulofficial.github.io/)
